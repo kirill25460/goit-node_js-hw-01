@@ -1,2 +1,5 @@
 # goit-node_js-hw-01
-https://monosnap.com/list/63e5470000a372620600c10c
+https://ibb.co/qCczbpR
+https://ibb.co/X21BBvS
+https://ibb.co/SwCCF6H
+https://ibb.co/sJhmwQD
